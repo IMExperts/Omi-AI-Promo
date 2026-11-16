@@ -1,5 +1,5 @@
 
-# 🧠 Omi AI Promo Code – Save $50 on Your Personal AI Assistant (2026)
+# 🧠 Omi AI Promo Code – Save $50 on Your Personal AI Assistant
 
 ---
 
